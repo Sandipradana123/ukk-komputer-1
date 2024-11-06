@@ -1,0 +1,1 @@
+# ukk-komputer-1
